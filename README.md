@@ -1,2 +1,0 @@
-# uzatu
-Leila uzatu
